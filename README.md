@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ahmedbouba383@gmail.com**
 
-- ⚡ Fun fact **fact it until you make it**
+- ⚡ Fun fact **=> fake it until you make it**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
